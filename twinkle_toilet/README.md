@@ -1,4 +1,4 @@
-# SOIAI Privacy Policy
+# Twincle toilet Privacy Policy
 
 ## Image
 * Camera (photographing)  
